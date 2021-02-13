@@ -1,0 +1,2 @@
+# Kasnak
+Biz özel insanlarız
